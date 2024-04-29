@@ -1,0 +1,1 @@
+# KlasyAbstrakcyjneV2
